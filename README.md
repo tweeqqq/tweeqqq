@@ -1,2 +1,3 @@
-<img width="1689" height="996" alt="IMG_9243" src="https://github.com/user-attachments/assets/3f447b10-29f1-4334-87a0-47170f8c82c3" />
+<img width="871" height="514" alt="IMG_9246" src="https://github.com/user-attachments/assets/c79a195a-f3f0-4a30-96f8-7a355e111c21" />
+
 so i was trying to draw tweek in class but i messed up and he blew up. sorry.
