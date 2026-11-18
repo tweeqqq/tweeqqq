@@ -2,3 +2,5 @@
 
 so i was trying to draw tweek in class but i messed up and he blew up. sorry.
 theres some art in my strawpage now i guess
+
+ask to send a frq (ill prolly say yes if u ask mkay)
