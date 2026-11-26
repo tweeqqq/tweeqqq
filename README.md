@@ -11,4 +11,5 @@ ask to send a frq (ill prolly say yes if u ask mkay)
 - i check my strawpage every day too so theres that
 
 <img width="769" height="930" alt="image0" src="https://github.com/user-attachments/assets/965dc309-c394-43ea-b424-d07c98f70970" />
-it better not be randy i swear to god
+IT WASNT RANDY WE ALL CHEER
+
